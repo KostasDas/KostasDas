@@ -38,4 +38,4 @@ I'm a Software Engineer with a decade of experience spanning multiple roles, dom
 
 ## 📫 Get In Touch
 
-- 🔗 **LinkedIn:** [Connect with me][(https://linkedin.com](https://www.linkedin.com/in/konstantinos-daskalopoulos-11614a91/))
+- 🔗 **LinkedIn:** [Connect with me][(https://linkedin.com](https://www.linkedin.com/in/konstantinos-daskalopoulos-11614a91/)
